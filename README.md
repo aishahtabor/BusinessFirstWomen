@@ -1,2 +1,0 @@
-# BusinessFirstWomen
-CFG Project
